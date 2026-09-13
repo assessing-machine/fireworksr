@@ -1,1 +1,1 @@
-### Thingking Machine (fireworksr)
+### Assessing Machine (fireworksr)
